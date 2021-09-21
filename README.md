@@ -10,6 +10,4 @@
 
 Congratulations🥳
 
-If you have any error you can join my server I will help you😁
-
-Server : https://discord.gg/CNzNZSbkMa
+If you have any error you can join my [server](https://discord.gg/CNzNZSbkMa) I will help you😁
