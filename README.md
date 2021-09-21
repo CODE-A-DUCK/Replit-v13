@@ -11,3 +11,5 @@
 Congratulations🥳
 
 If you have any error you can join my server I will help you😁
+
+Server : https://discord.gg/CNzNZSbkMa
